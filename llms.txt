@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا حبيبي تعال في حضني الليلة
+> قلبي ينادي من بين الظلام
+> أريد أن أذوب في عينيك الجميلة
+> ونعيش معا في هذا الغرام
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
